@@ -1,0 +1,1 @@
+# ethicalhacking_cybersecurity_miniproject1_footprinting
